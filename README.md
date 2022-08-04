@@ -1,1 +1,0 @@
-# Kansei-Information-Processing
